@@ -35,11 +35,16 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Plaine Perceuall the peace-maker of England Sweetly indeuoring with his blunt persuasions to botch v
+TO THE NEW VP-START MARTIN, AND THE MISBEGOTTEN HEIRES OF HIS body: his ouerthwart neighbor, Mar-Mar
 #####Body#####
-Plaine Perceuall the peace-maker of England Sweetly indeuoring with his blunt persuasions to botch v
+HE was a tender harted fellow, though his luck were but hard, which hasting to take vp a quarrell, b
 #####Back#####
-Plaine Perceuall the peace-maker of England Sweetly indeuoring with his blunt persuasions to botch v
+
+This worke being finished, and red ouer and óuer by the head of the parish, they called a vestry, w
+1. The Coblers prophecy vpon the Author.
+My frinds all fauor I beseech,To yeeld our Perceuall good speech:Husht Momus or my needell in thy br
+1. Faults escaped.
+
 **Types of content**
 
   * There are 55 **verse** lines!
